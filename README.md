@@ -1,2 +1,2 @@
 # HTML-GAMES
-html game maker
+games by a html game maker named pinchy1
