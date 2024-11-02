@@ -1,3 +1,1 @@
-Pinchy1 unblocked games
-  pinchy1 is a html
-     game maker
+Pinchy1 unblocked html [the best html games]
